@@ -5,6 +5,7 @@ America is a Democracy
 Pakistan is not a Democracy
 
 I am one who is noone.
+Bhutan too is not a democracy
 
 
 
